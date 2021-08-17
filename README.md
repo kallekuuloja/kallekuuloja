@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kallekuuloja
+- 👀 I’m interested in the bag 💰
+- 🌱 I’m currently learning to not fumble the bag 🙏
+- 💞️ I’m looking to collaborate on money laundering and tax evasion 😈
+- 📫 How to reach me: A physical letter (no digital fingerprints)
